@@ -1,1 +1,0 @@
-# wealththerapist.github.io
